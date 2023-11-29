@@ -2,10 +2,6 @@
 
 ## Haddonfield, Halloween 1988
 
-Chapter 1: Shadows of Halloween Past
-
-Haddonfield, Halloween 1988
-
 The night draped itself in the eerie shadows of Halloween, the air thick with the unsettling scent of fear. Police cars raced through the dimly lit streets of Haddonfield, their flashing lights casting a disjointed dance of red and blue on the surrounding houses. In one of the speeding vehicles, the truck carrying Jamie and Rachel careened along the road, desperately trying to escape the malevolent force that pursued them.
 
 Rachel's grip on the wheel tightened as the truck swerved dangerously. On top of the truck, the ominous silhouette of Michael Myers lurked, an embodiment of evil. Determined, Rachel slammed on the brakes, sending Myers flying off the truck. In the heated moment, she unleashed her fury.
