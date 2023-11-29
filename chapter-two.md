@@ -3,130 +3,156 @@
 
 ### Children's Clinic - Haddonfield, IL
 
-(Its a rainy night, Jamie is in bed tossing and turning, with machines hooked up to her. She dreams about last Halloween, when she stabbed her stepmother with scissors. Jamie wakes up trying to scream but not making much noise. A nurse comes in.)
+Rain cascaded against the windows of the children's clinic in Haddonfield, painting a melancholic backdrop to the approaching Halloween night. Jamie lay restless in her hospital bed, entangled in a web of machines that monitored her every breath. The room echoed with the rhythmic beeping of medical equipment, and outside, the rain whispered a haunting lullaby.
 
-Nurse: It's all right, its all right darling. Jamie! Jamie! Its just another one of your nightmares that's all. Look at me, look at me. Do you want me to call your mom? (Jamie tries to answer, but can't. Her hand moves- cut to Myers- his hand is moving. He has a tattoo of some shape on his wrist. Cut to Jamie who is flipping out..) I'll call the doctor. (nurse leaves, cut to Myers getting up from a bed at the hermits hut. Cut to Jamie who is writing on a chalk board. HE'S COMING FOR ME is what she writes. Myers is putting on his mask, Jamie acts as though she is putting on a mask. Myers comes up behind the hermit and breaks his neck. Jamie falls on the bed, Myers stabs the hermit. Jamie acts as though she is having a seizure, the nurse comes back in.) Jamie, Jamie!!! Doctor! Get a Gerney---somebody! (Doctors come in) Breathe Jamie, Breathe. (They start bringing her down a hallway.)
+Amidst the downpour, Jamie's sleep was a tempest of troubled dreams. She relived the horrors of the past Halloween, a night stained by her own hand—a night when she had stabbed her stepmother with scissors. Her subconscious wrestled with the shadows, and she awoke with a silent scream, the weight of her nightmares clinging to her like a ghost.
 
-Dr: Jamie, Jamie. Jamie, (Since Jamie seems not able to breathe on her own, they start to place something in her throat.)
+A compassionate nurse entered the room, seeking to soothe Jamie's distressed state.
 
-Loomis: No! No!
+"Nurse," Jamie whispered, her voice barely audible over the sound of rain, "it's happening again."
 
-Dr: What are you doing?
+The nurse tried to reassure her. "It's all right, darling. Jamie! Jamie! It's just another one of your nightmares. Look at me, look at me. Do you want me to call your mom?"
 
-Loomis: Leave her.
+Jamie struggled to respond, her hand gesturing weakly. The scene shifted, and the ominous figure of Myers emerged, a tattoo on his wrist a cryptic symbol of the evil that lurked.
 
-Dr: This girl is dying, I have to open her trachea, for Gods sake.
+"Nurse, it's him," Jamie uttered, her eyes wide with fear.
 
-Loomis: She will stabilize.
+The nurse rushed to the door. "I'll call the doctor."
 
-Dr: She's dying.
+As the nurse left, Myers stirred in a remote hermit's hut. Simultaneously, Jamie, in a state of agitation, turned to a chalkboard, etching a dire message: "HE'S COMING FOR ME." Myers, donning his iconic mask, mirrored Jamie's movements as though tethered by an unseen force. The hermit, oblivious to the impending danger, fell victim to Myers' malevolence.
 
-Loomis: No...(Jamie becomes calm and can breathe again.) Do you see?
+Jamie collapsed onto the bed, feigning a seizure, while the nurse returned to witness the unfolding nightmare.
 
-Dr: I see you, stupid, (mumbles) this girls dead....
+"Jamie, Jamie!!! Doctor! Get a gurney—somebody!"
 
-Loomis: She has something to tell us.
+Doctors rushed in, their urgency palpable as they attended to Jamie, attempting to restore the breath that seemed elusive. Loomis, the ever-vigilant guardian, protested against invasive measures.
 
-(Its the next morning, Loomis comes into Jamie's room, Rachel is sleeping in the chair beside the bed, and Jamie is playing with her hair. Rachel wakes up to Loomis leaving.)
+"Jamie, Jamie. Jamie," the doctor repeated, urgency lacing his voice.
 
-Rachel: Hey there funny face. (Jamie signals to Rachel that she has makeup under her eyes) What? (realizes what Jamie was telling her.) Thank you. (Wipes it away.)
+"No! No!" Loomis shouted, his concern etched on his face.
 
-Girl: Hey! (Banging on window) Hey! Open up! (Rachel opens the window)
+The doctor insisted, "What are you doing? This girl is dying. I have to open her trachea, for God's sake."
 
-Rachel: They don't allow Max in here.
+Loomis, with conviction, stood his ground. "She will stabilize."
 
-Girl: Get in there Max. (A dog climbs in the window and goes on the bed with Jamie.)
+The doctor's desperation grew. "She's dying."
 
-Rachel: Tina!
+"No..." Loomis muttered, his eyes fixed on Jamie.
 
-Tina: You know what they can do if they can't take a joke.
+As Jamie regained composure, Loomis's conviction held firm, adamant that she bore a message beyond the physical realm.
 
-Rachel: (whispering) She doesn't even remember.
+The following morning, Loomis entered Jamie's room, finding Rachel asleep in a chair beside the bed. Jamie playfully toyed with Rachel's hair as the doctor departed.
 
-Tina: Is she really better? (Rachel nods) Hey! Hey, hey, hey (hugs Jamie) Give me some of this action baby. (Jamie sighs and her lips move as to say "what do you have for me") What? (Jamie looks around) Ah. I wonder what Rachel is hiding behind door #3 (starts singing)
+"Hey there, funny face," Rachel greeted, waking to the sight of Jamie's playful demeanor. Jamie signaled to Rachel about makeup under her eyes.
 
-Rachel: Ta da! (holds out a princess costume)
+"What?" Rachel said, realizing. "Thank you." She wiped the makeup away.
 
-Tina: Billy is going to have....
+Tina, a visitor, burst into the room, infusing a burst of energy. "Hey! Open up!"
 
-Rachel: Billy is going to freak
+"They don't allow Max in here," Rachel explained as she opened the window.
 
-Tina: ...fun
+"Get in there, Max," Tina directed as a dog climbed through the window onto Jamie's bed.
 
-(Loomis walks in)
+"Tina!" Rachel exclaimed.
 
-Loomis: What is going on here? (looks at Max)
+Tina laughed, saying, "You know what they can do if they can't take a joke."
 
-Tina: (laughs) Gee, sorry. (To Max) Come on Hun. (To Jamie) Bye sweetie, love you.
+Whispering, Rachel added, "She doesn't even remember."
 
-Rachel: (Takes Jamie's hands) I'll be back in 2 days, okay? (nods) Mom and Dad send their long. (they hug. And all of the sudden there is a big crash. Something has been thrown in the window. Tina comes back in, as Loomis picks up a brick with a note taped to it. "The evil child must die!" it reads. Cut to Rachel and Loomis outside.)
+Tina questioned, "Is she really better?" receiving a nod from Rachel. Tina then hugged Jamie, saying, "Give me some of this action, baby." Jamie sighed, her lips moving as if to ask, "What do you have for me?"
 
-Rachel: How could they? When are they going to realize that she is not him? She's just a child.
+Tina looked around and noticed a princess costume. "Ah. I wonder what Rachel is hiding behind door #3," she said, starting to sing.
 
-Loomis: They know that Michael Myers is her uncle and that she attacked her stepmother, that's why they fear her, especially on Halloween.
+"Ta da!" Rachel held out the princess costume.
 
-Rachel: I never should have let my parents talk me into leaving. I don't know what I was thinking.
+"Billy is going to have..." Rachel began.
 
-Loomis: You're afraid
+"Billy is going to freak," Tina finished. "Fun."
 
-Rachel: I am not.
+Loomis walked in, questioning the commotion. "What is going on here?"
 
-Loomis: You're afraid the whole thing might start to happen again. There's nothing wrong with being afraid.
+Tina laughed, apologizing, "Gee, sorry." She directed the dog. "Come on, hun." Then, to Jamie, she said, "Bye sweetie, love you."
 
-Rachel: and I suppose there's nothing wrong with just leaving my little stepsister here alone?
+Rachel took Jamie's hands, promising, "I'll be back in 2 days, okay?" After they hugged, a crash interrupted the moment. Something had been thrown in the window. Tina came back in as Loomis picked up a brick with a note taped to it. "The evil child must die!" it read. Cut to Rachel and Loomis outside.
 
-Loomis: You can telephone her from the cabin. She'll be properly looked after.
+"How could they?" Rachel questioned, frustration evident. "When are they going to realize that she is not him? She's just a child."
 
-Rachel: Then why do I still feel guilty? (Tina is waiting for her at the end of the walkway.)
+"They know that Michael Myers is her uncle and that she attacked her stepmother," Loomis explained, shedding light on the community's fears. "That's why they fear her, especially on Halloween."
+
+"I never should have let my parents talk me into leaving. I don't know what I was thinking," Rachel lamented.
+
+"You're afraid," Loomis observed.
+
+"I am not," Rachel defended herself.
+
+"You're afraid the whole thing might start to happen again. There's nothing wrong with being afraid," Loomis reassured.
+
+"And I suppose there's nothing wrong with just leaving my little stepsister here alone?" Rachel pondered.
+
+"You can telephone her from the cabin. She'll be properly looked after," Loomis suggested.
+
+Rachel, torn between responsibility and fear, questioned, "Then why do I still feel guilty?" Tina waited for her at the end of the walkway.
 
 (Cut to Tina and Rachel walking)
 
-Rachel: I'm worried about Jamie.
+"I'm worried about Jamie," Rachel confessed.
 
-Tina: So stick around.
+"So stick around," Tina suggested.
 
-Rachel: I already promised my parents.
+"I already promised my parents," Rachel replied.
 
-Tina: Promises were meant to be broken babe.
+"Promises were meant to be broken, babe," Tina teased.
 
-Rachel: I don't know.
+"I don't know," Rachel sighed.
 
-Tina: The Farm's parties always rock. Think about it
+"The Farm's parties always rock. Think about it," Tina urged.
 
-Rachel: Okay.
+"Okay," Rachel conceded.
 
-Tina: (They reach Rachel's house.) I gotta jet. Bye.
+(They reached Rachel's house.) "I gotta jet. Bye," Tina said.
 
-Rachel: Bye.
+"Bye," Rachel replied.
 
-Tina: I'll be back with the outfits.
+"I'll be back with the outfits," Tina promised.
 
-Rachel: See ya, Tina. (Max pulls her towards a tree and starts barking his head off.) Max! Max, what is it? Come on Max, come on. (she goes inside, Myers is seen behind the tree. Inside she starts undressing, then feeds Max. Myers is watching through a window. Cut to Jamie who looks worried and dazed. She goes to a wall and starts drawing. Cut to Max barking.) Shut up Max! (she's now in the shower. Cut to Jamie, Loomis is watching her draw a picture of a dog.)
+"See ya, Tina." Max pulled Rachel towards a tree, barking incessantly. "Max! Max, what is it? Come on, Max, come on." Rachel ushered Max inside. As she entered the house, Myers lingered behind a tree, unseen.
 
-Billy: Jamie
+Inside, Rachel started undressing, unaware of the ominous presence watching through a window. She then fed Max, still oblivious to the silent menace that observed her every move.
 
-Jamie: (signs) Max
+Meanwhile, Jamie, feeling a sense of unease and foreboding, wandered to a wall and began sketching. Her drawings, a manifestation of the unsettling visions that haunted her, portrayed a desperate attempt to communicate the impending danger she felt lurking.
 
-Billy: Max? (she nods, he turns around and bumps into Loomis. Cut to Rachel still in shower.)
+Back outside, Max continued barking, disrupting the quiet night. "Shut up, Max!" Rachel scolded as she entered the shower.
 
-Rachel: (phone rings) All right, hold on a minute (keeps ringing) all right, I'm coming (gets out and goes in bedroom. Picks up the phone.) Hello?
+Simultaneously, Loomis observed Jamie's artistic endeavors, his eyes following her every stroke on the chalkboard. In another part of the house, Billy approached Jamie.
 
-Loomis: Oh, are you all right?
+"Jamie," he called out.
 
-Rachel: Yeah, I'm fine. I was just in the shower.
+In response, Jamie signed, "Max."
 
-Loomis: Is, is Max all right?
+"Max?" Billy questioned, turning around and accidentally bumping into Loomis. The unexpected collision drew attention to Jamie's silent communication.
 
-Rachel: Max is having fun, he's been barking at a cat all morning.
+Meanwhile, Rachel, still in the shower, heard the phone ring. "All right, hold on a minute," she said as she grabbed a towel. The ringing persisted. "All right, I'm coming," she continued, answering the call as she entered the bedroom. "Hello?"
 
-Loomis: Go check him.
+"Oh, are you all right?" Loomis's concerned voice came through the phone.
 
-Rachel: Well, why?
+"Yeah, I'm fine. I was just in the shower," Rachel replied.
 
-Loomis: Go check him. Now!
+"Is Max all right?" Loomis inquired.
 
-Rachel: All right, All right. Hold on. I have to go downstairs. (puts phone down) Brother! (She goes downstairs in her towel. Myers is watching, she sees the back door open and Max is gone. Myers can be seen in the room behind her. She picks up the phone, and drops it) Ah.
+"Max is having fun; he's been barking at a cat all morning," Rachel assured him.
 
-Loomis: Rachel?
+"Go check him," Loomis urged, a sense of urgency in his tone.
 
-Rachel: Dr. Loomis, Max is gone. Tr
+"Well, why?" Rachel questioned.
+
+"Go check him. Now!" Loomis insisted.
+
+"All right, all right. Hold on. I have to go downstairs," Rachel said as she put the phone down. She called out to her brother, "Brother!" then made her way downstairs in her towel.
+
+Unbeknownst to Rachel, Myers observed from the shadows, and as she reached the back door, Max was nowhere to be found. Myers made a chilling appearance in the room behind her.
+
+Rachel picked up the phone again, but before she could speak, she saw the open back door and Max's disappearance. Fear gripped her as she dropped the phone. "Ah," she gasped.
+
+"Rachel?" Loomis's voice came through the phone, now filled with concern.
+
+"Dr. Loomis, Max is gone," Rachel confessed, the ominous truth settling in. The air hung heavy with the impending darkness of another Halloween night in Haddonfield.
