@@ -3,6 +3,13 @@ An AI-generated (and human-fixed) novelisation of the Halloween V script because
 
 The novelisation is generated with the free ChatGPT 3.5 over at https://chat.openai.com/. It takes a few prompts to get the dialogue to be novelised along with the descriptions.
 
+## Credits
+The original screenplays for *Halloween V: Revenge of Michael Myers* were written by:
+
+* Michael Jacobs
+* Dominique Othenin-Girard
+* Shem Bitterman
+
 ## Sources
 I have archived these on Wayback Machine and Archive.is. Sadly, the script at 45LampkinLane.com looks to have been removed 😞:
 
