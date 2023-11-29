@@ -3,6 +3,7 @@ An AI-generated (and human-fixed) novelisation of the Halloween V script because
 
 The novelisation is generated with the free ChatGPT 3.5 over at https://chat.openai.com/. It takes a few prompts to get the dialogue to be novelised along with the descriptions.
 
+## Purchase *Halloween IV*
 If you want to support an actual Halloween novelisation author, the prequel *Halloween IV* by Nicholas-Grabowsky sets up this story and can be purchased off Amazon directly:
 
 * https://www.amazon.com-IV-Authorized-Nicholas-Grabowsky/dp/1530144736
