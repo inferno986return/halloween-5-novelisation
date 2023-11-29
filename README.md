@@ -1,7 +1,7 @@
 # halloween-5-novelisation
 An AI-generated (and human-fixed) novelisation of the Halloween V script because an official novelisation doesn't exist. I won't change much as I want it to stay in US English.
 
-The novelisation is generated with the free ChatGPT 3.5 over at https://chat.openai.com/. It takes a few prompts to get the dialogue to be novelised along with the descriptions.
+The novelisation is generated with the free ChatGPT 3.5 over at https://chat.openai.com/. It takes a few prompts to get the dialogue to be novelised along with the descriptions. I find that this works well for each chapter: "Change this screenplay into a novel with speech marks and descriptive speech verbs:"
 
 ## Purchase *Halloween IV*
 If you want to support an actual Halloween novelisation author, the prequel *Halloween IV* by Nicholas Grabowsky sets up this story and can be purchased off Amazon directly:
