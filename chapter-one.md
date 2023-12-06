@@ -28,7 +28,7 @@ Ignoring the warnings, Jamie let go of Myers' hand and turned away. In that mome
 
 A barrage of gunfire erupted as the police officers unleashed a hail of bullets. Myers fell, seemingly defeated, into a nearby mine shaft. However, the relief was short-lived, for he emerged unscathed, crawling out as the police tossed bombs after him. The relentless pursuit continued, and Myers found an unexpected escape route—a river that carried him away.
 
-The current carried Myers to a secluded hut, where an unsuspecting hermit lived with his noisy companion, Squawky. Inside the humble abode, the hermit tried to silence his avian friend.
+The current carried Myers to a secluded hut, where an unsuspecting hermit who was known ominously as Dr. Death lived with his noisy companion, Squawky. Inside the humble abode, the hermit tried to silence his avian friend.
 
 "Quiet, Squawky. Be quiet," the hermit murmured.
 
